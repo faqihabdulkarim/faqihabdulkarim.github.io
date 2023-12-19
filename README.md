@@ -7,7 +7,7 @@
 - B.A., Indonesian Literature | Diponegoro University (_June 2019_)
 
 ## Work Experience
-**Production Staff @ Gerobak Juara Indonesia (_August 2019 - May 2021_)
+**Production Staff @ Gerobak Juara Indonesia (_August 2019 - May 2021_)**
 - Strategized ideas enter a niche market for a new product that is more simple, more efficient, can reach all business actors. Also, make improvements to existing products.
 - Develop an operational workflow for efficient production processes by 30%. Creating forms production to facilitate production staff checking every process.
 - Analyzed and collaborated with Director and our vendors to evaluate the effectiveness and efficiency of the production process. And what solutions can be offered to overcome these problems.
